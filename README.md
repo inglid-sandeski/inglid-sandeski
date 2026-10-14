@@ -1,4 +1,4 @@
-# Olá, eu sou a Inglid Sandeski 👋
+# Olá, eu sou Inglid Sandeski 👋
 
 🎓 Estudante de Sistemas de Informação na UNEMAT  
 📍 Sinop/MT  
